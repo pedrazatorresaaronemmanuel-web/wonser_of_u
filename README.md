@@ -1,2 +1,2 @@
-# wonser_of_u
+# wonder_of_u
 solo un stand mas de araki
